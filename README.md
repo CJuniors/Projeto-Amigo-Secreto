@@ -24,9 +24,9 @@ feito por Claudio Junior
 
 entre em contato:
 
-GitHub:
+GitHub: https://github.com/CJuniors
 
-Linkedln: 
+Linkedln: www.linkedin.com/in/cjuniors
 
 
 
